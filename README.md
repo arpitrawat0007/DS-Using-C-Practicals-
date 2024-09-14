@@ -41,3 +41,8 @@ This project is licensed under the MIT License.
 Let's connect!
 
 << They are some Practicals which i performed during my Diploma in 4th sem >>
+
+
+Contact
+
+Arpit Rawat arpitrawat0707@gmail.com Reach me at LinkedIn www.linkedin.com/in/arpitrawat0007
